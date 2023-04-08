@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ahmedSrKammounYT](https://github.com/ahmedSrKammounYT)
 
-- 📫 How to reach me **Discord: MrKammounYT#8944** **srkammounyt@gmail.com**
+- 📫 How to reach me **Discord: MrKammounYT#8944** / **srkammounyt@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
